@@ -10,7 +10,7 @@
 - 📖 I’m currently learning everything 🤣 <br>
 - 👯 I’m looking to collaborate with other companies and adding crucial improvements
 - 🥅 2024 Goals: Learn more about Machine Learning,Cloud , and AI projects  <br>
-- 📫 How to reach me : Email : 0@gmail.com / Phone : +212 6 <br>
+- 📫 How to reach me : Email : maryammaftouh3@gmail.com / Phone : +212 631272506 <br>
 
 ### 💻 Top Programming Languages
 
